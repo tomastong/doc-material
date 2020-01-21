@@ -4,7 +4,8 @@
 
 
  
- 无论发生什么事，都希望『将生活过好』，
+ 『将生活过好，是我的信仰...
+ 为了照顾身边家人、提高生活品质， 不做钱的奴隶，
 
 
 
@@ -15,5 +16,5 @@
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc5NTA4MTEyMywxNTQwMjM0OTcyXX0=
+eyJoaXN0b3J5IjpbMTUyMjk4NzY3NywxNTQwMjM0OTcyXX0=
 -->
