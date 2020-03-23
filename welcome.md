@@ -26,7 +26,7 @@
    3. 主动积极
        对于有些事情，需要承担主动推动的责任
 
-新人到一个团队的适应是需要时间的，尤其是在工作内容、工作流程和上级领导都变了的情况下，那么需要尽快
+新人到一个团队的适应是需要时间的，尤其是在工作内容、工作流程和上级领导都变了的情况下...作为一个成熟的职场人，更加需要注意这几方面问题，尽快融入团队，并承担起自己的工作责任
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk5NDQ0MjMyNCwxNzU3NDY2NjcyXX0=
+eyJoaXN0b3J5IjpbMjE0MTEwNTM4MSwxNzU3NDY2NjcyXX0=
 -->
